@@ -1,0 +1,2 @@
+# SkripsiGECO
+Yakin Selesai TA!!
